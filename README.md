@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @razelkayamdev
-- 👀 I’m interested in 🏄‍♂️
 - 🌱 I’m currently learning EVERYTHING
 - 📫 you can reach me via email
 
